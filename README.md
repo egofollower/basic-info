@@ -1,4 +1,4 @@
-<center><img src="https://files.catbox.moe/sh82da.png"> </img> </center>
+<center><img src="https://files.catbox.moe/zgox5z.png"> </img> </center>
 <center> <h1>KINGGU/KING</h1></center>
 
 <p><center>hello i am kinggu i use he/they/star and i am shy and nice thank you... i also draw! i love skatebox and everything phighting yesyes!</center></p>
